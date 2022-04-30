@@ -1,6 +1,6 @@
 # Jesse's Very Biased Intro To Metal(ish) Music
 
-Some disclaimers and info about how this document.
+Some disclaimers and info about this document.
 
 * A friend asked me for some metal music to run to.  So I started making them this list and then... I got carried away.  I had lot fun making this and thought it served as a descent starting point and likely a thing I'd want to reference again so here it stands.
 * This is very biased towards what I like.  This is meant to answer the question that is sometimes asked to me of "Jesse, how do I get into metal?" or "What metal albums do you recommend?" or "I like ____.  Do you have any recommendations?  Before yelling at me on Twitter or opening an issue about how I didn't include _your_ favorite album consider that this is a very personalized recommendation on how to get into a genre of music that is often quite abrasive and difficult for many.
