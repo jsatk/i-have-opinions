@@ -20,7 +20,7 @@ Deafheaven — [Sunbather](https://open.spotify.com/album/2kKXGWaCEl06EKZ4DxBJIT
 Deafheaven — [New Bermuda](https://open.spotify.com/album/2e4xOasRFhJn4x2MBM5pdu?si=9aZhawP9Sfy8OGiim50h8A)  
 Deafheaven — [Ordinary Corrupt Human Love](https://open.spotify.com/album/2iA7rzpQsOfAPkfH4Ekp7f?si=fd2WHkEPQPOOzIv9rcO1iQ)
 
-> OAKLAND, CA — They made black metal + shoegaze (blackgaze) mainstream(ish).  These guys are phenomenal and I adore them.  They're extremely divisive.
+> SAN FRANCISCO, CA — They made black metal + shoegaze (blackgaze) mainstream(ish).  These guys are phenomenal and I adore them.  They're extremely divisive.
 
 Holy Fawn — [Death Spells](https://open.spotify.com/album/3L9kfqui54S1V2MvOHKmJC?si=ZGr-ozu7Qbuw_nHtwSaYcA)
 
