@@ -92,6 +92,10 @@ Gojira — [L'Enfant Sauvage](https://open.spotify.com/album/2WrU1VLLBaZy4k5s0p5
 
 > FRANCE — If you couldn't tell from the title of the record, these guys are french.  This record is considered a modern classic.  I dig it.  I don't dig it as much as some people think I should.  But nonetheless.  If you dig this try their latest "Born For One Thing" which is my second favorite of theirs.
 
+Tribulation — [Down Below](https://open.spotify.com/album/3W0Attfc9hO9Vb03ngDn2k?si=fpHR-zAZSwS4TzX-TWNlRA)
+
+> SWEDEN — These guys do modern gothic heavy metal.  They're campy and awesome and I love all their records.  This one is their best.  They are one of the few bands on this list to rock [corpse paint](https://en.wikipedia.org/wiki/Corpse_paint).
+
 ## Older "Normal" Metal Fare
 
 Bold Thrower — [The IVth Crusade](https://open.spotify.com/album/5KGfoKn51bVXAauPmV47K3?si=uUluv8NZSfqmbAkLiKoKIQ)
@@ -151,7 +155,8 @@ Converge — [The Dusk In Us](https://open.spotify.com/album/23cl7dningjCbwiNpOy
 
 > SALEM, MA — I'm a Converge super fan.  Literally any album from "Jane Doe" on gets my full endorsement (I like the first two but they're harder to recommend).  Start with "You Fail Me" prolly if you've never listened.  Also they have a new album with Chelsea Wolfe (that I mention below that and also Chelsea Wolfe duets on a track on Myrkur's second record) is good.
 
-Every Time I Die — [Low Teens](https://open.spotify.com/album/6YIQv7ZD6WRY2NM88FBucx?si=2PZRJnm3QLy0c4N6NqZLxg)
+Every Time I Die — [Low Teens](https://open.spotify.com/album/6YIQv7ZD6WRY2NM88FBucx?si=2PZRJnm3QLy0c4N6NqZLxg)  
+Every Time I Die — [Gutter Phenomenon](https://open.spotify.com/album/6bL6rFAbAPxrmvuRZx9tfz?si=9zsnj8dSQu-k1dW2-H8l4Q)
 
 > BUFFALO, NY — Party-core but also they sometimes sing about racist cops being bad and depression.  I love this band.  If you dig this record bounce over to literally any other one of theirs.  The song "We'rewolf" is probably their biggest hit and got some radio play.
 
