@@ -172,6 +172,16 @@ Underoath — [They're Only Chasing Safety](https://open.spotify.com/album/5GeXn
 
 > TAMPA, FL — I mean. C'mon. It's a classic screamo record.  Does it show some age?  Sure.  But what on here doesn't.  This is fun and has solid pop hooks in between the screaming.
 
+Thursday — [Full Collapse](https://open.spotify.com/album/5HMT2y9yUoPH7yYhnyIpQo?si=FzXDjVTuQDSSKgDTatnlnw)
+Thursday — [War All Of The Time](https://open.spotify.com/album/7gd57Ics8NX1LGdGgvYZ0t?si=-TRU8shhRl-z7N5yi_752g)
+
+> NEW BRUNSWICK — One of if not my favorite band ever.  This band has meant so much to me.  I won't sell you on them much other than give them a listen.
+
+Glassjaw — [Worship & Tribute]()
+Glassjaw — [Everything You've Ever Wanted To Know About Silence]()
+
+>  HEMPSTEAD, NY — Basically Thursday's sibling band in the scene.  I feel almost as strongly about them as I do Thursday.  Just... yeah... love this band.
+
 United Nations — [The Next Four Years](https://open.spotify.com/album/4eYvhp2VAf6fvQoEuqPJBr?si=T0lT3JhnQPqYPFMmTXDAow)
 
 > NYC, NY — Very intense screamo super group.  Geoff Rickley from Thursday does the vocals.  There's guys from Glassjaw, Converge, and The Number 12 Looks LIke You in this group.  It's short and will make your head explode.  I really don't get why this record is so slept on.  They don't care for the republican party much.
