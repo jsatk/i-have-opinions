@@ -172,13 +172,13 @@ Underoath — [They're Only Chasing Safety](https://open.spotify.com/album/5GeXn
 
 > TAMPA, FL — I mean. C'mon. It's a classic screamo record.  Does it show some age?  Sure.  But what on here doesn't.  This is fun and has solid pop hooks in between the screaming.
 
-Thursday — [Full Collapse](https://open.spotify.com/album/5HMT2y9yUoPH7yYhnyIpQo?si=FzXDjVTuQDSSKgDTatnlnw)
+Thursday — [Full Collapse](https://open.spotify.com/album/5HMT2y9yUoPH7yYhnyIpQo?si=FzXDjVTuQDSSKgDTatnlnw)  
 Thursday — [War All Of The Time](https://open.spotify.com/album/7gd57Ics8NX1LGdGgvYZ0t?si=-TRU8shhRl-z7N5yi_752g)
 
 > NEW BRUNSWICK — One of if not my favorite band ever.  This band has meant so much to me.  I won't sell you on them much other than give them a listen.
 
-Glassjaw — [Worship & Tribute]()
-Glassjaw — [Everything You've Ever Wanted To Know About Silence]()
+Glassjaw — [Worship & Tribute](https://open.spotify.com/album/0KeXHDwyfBUshx0c9AqjpT?si=6uqgd0hRReO7DSGjE3mg8A)  
+Glassjaw — [Everything You've Ever Wanted To Know About Silence](https://open.spotify.com/album/1fUuTc7d6COMx8rR1qAmr8?si=08gmkZQMQtqXKEOf-CXyfA)
 
 >  HEMPSTEAD, NY — Basically Thursday's sibling band in the scene.  I feel almost as strongly about them as I do Thursday.  Just... yeah... love this band.
 
