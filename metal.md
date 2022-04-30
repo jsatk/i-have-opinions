@@ -16,8 +16,8 @@ Alcest — [Kodama](https://open.spotify.com/album/7cf5MM7qQ6V0Petqr4aeZ2?si=36d
 
 > FRANCE — French black metal about Miyazaki's _Princess Mononoke_ which happens to be my favorite film of his.  It rules.  It's a great example of the "blackgaze" genre.
 
-Deafheaven — [Sunbather](https://open.spotify.com/album/2kKXGWaCEl06EKZ4DxBJIT?si=Z1P3wmrWSGG75hhavFcMaQ)
-Deafheaven — [New Bermuda](https://open.spotify.com/album/2e4xOasRFhJn4x2MBM5pdu?si=9aZhawP9Sfy8OGiim50h8A)
+Deafheaven — [Sunbather](https://open.spotify.com/album/2kKXGWaCEl06EKZ4DxBJIT?si=Z1P3wmrWSGG75hhavFcMaQ)  
+Deafheaven — [New Bermuda](https://open.spotify.com/album/2e4xOasRFhJn4x2MBM5pdu?si=9aZhawP9Sfy8OGiim50h8A)  
 Deafheaven — [Ordinary Corrupt Human Love](https://open.spotify.com/album/2iA7rzpQsOfAPkfH4Ekp7f?si=fd2WHkEPQPOOzIv9rcO1iQ)
 
 > OAKLAND, CA — They made black metal + shoegaze (blackgaze) mainstream(ish).  These guys are phenomenal and I adore them.  They're extremely divisive.
