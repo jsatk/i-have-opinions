@@ -49,7 +49,7 @@ Kvelertak — [Meir](https://open.spotify.com/album/5PAjZGAD8j0XZANLxJWulb?si=Hx
 
 Bathroy — [Blood Fire Death](https://open.spotify.com/album/5Fs15tQVmd94pSRIpfd73N?si=f9I4ofT-Q7WLDKZAgyHpWQ)
 
-> SWEDEN — I know what you're thinking.  "Where the hell is Sweden?  Finland?  Norway!?"  Well here it is.  Of all the classic "Oh my god you have to listen to this historic and important record!" from Scandinavia this is my favorite (sorry Darkthrone & Mayhem you guys aren't that good actually).  This album's recording quality is meh, but literally every black metal album from this era is.  But this is a metal classic for a reason.  Pretty sure this is considered black metal, but it doesn't sound like modern black metal.
+> SWEDEN — I know what you're thinking.  "This is an intro to metal guide!  Where the hell is Sweden?  Finland?  Norway!?"  Well here it is.  Of all the classic "Oh my god you have to listen to this historic and important record!" from Scandinavia this is my favorite (sorry Darkthrone & Mayhem you guys aren't that good actually).  This album's recording quality is meh, but literally every black metal album from this era is.  But this is a metal classic for a reason.  Pretty sure this is considered black metal, but it doesn't sound like modern black metal.
 
 ## Blacken Death Metal (yes this is a real sub genre)
 
