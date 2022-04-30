@@ -2,13 +2,13 @@
 
 Some disclaimers and info about how this document.
 
-* A friend asked me for some metal music to run to.  So that's why there's references to running throughout.  I thought them amusing enough to leave in.  I had lot fun making this and thought it served as a descent starting point and likely a thing I'd want to reference again so here it stands.
+* A friend asked me for some metal music to run to.  So I started making them this list and then... I got carried away.  I had lot fun making this and thought it served as a descent starting point and likely a thing I'd want to reference again so here it stands.
 * This is very biased towards what I like.  This is meant to answer the question that is sometimes asked to me of "Jesse, how do I get into metal?" or "What metal albums do you recommend?" or "I like ____.  Do you have any recommendations?  Before yelling at me on Twitter or opening an issue about how I didn't include _your_ favorite album consider that this is a very personalized recommendation on how to get into a genre of music that is often quite abrasive and difficult for many.
 * Every album below is an album that I, at the very least, like.  Many of these I love.  I've noted in the few areas where I've put something on here that I do not like specifically with the intention of saying "This isn't for me but it might be for you."
 * Genres are meant to be a guide, a descriptor.  We have them so that we have some common language to describe music.  Metal in particular can get comically nuanced with its subgenres.  The following headings should be taken with an extreme grain of salt.  And if you strongly feel I've mislabeled something and want to scream at me about it please scream inside your heart.
 <!-- * Albums with a ★ next to them are albums that are in my personal top tier list (this does not indicate that they have to be in yours). -->
 * All links are to the albums on Spotify.  However I highly encourage you to support these artists financially if you do end up digging on them.
-* This is in no way the complete end all be all list.  This is _my_ list.
+* This is in no way the complete end all be all list.  This is _my_ list.  (And I've certainly forgotten some records I love because my brain is flawed.)
 
 ## Black Metal & Black Metal Adjacent Stuff Such As "Black Gaze" & Black 'N' Roll"
 
