@@ -34,7 +34,7 @@ Wolves in the Throne Room — [Celestian Lineage](https://open.spotify.com/album
 
 > OLYMPIA, WA — Black metal from dudes who live in the Pacific Northwest.  They play with like moss and shit on their amps.  It sounds like if a druid made black metal.
 
-Myrkur — [M](https://open.spotify.com/album/6rJfbMmi86eK8MSXNBUW9s?si=XaubZ25PQluVekxwMZqjTg)
+Myrkur — [M](https://open.spotify.com/album/6rJfbMmi86eK8MSXNBUW9s?si=XaubZ25PQluVekxwMZqjTg)  
 Myrkur — [Mareridt](https://open.spotify.com/album/3ewAlccDDYFoybQaMnkTvW?si=sDoiCSP8RgG_iYUXtBpuMw)
 
 > COPENHAGEN, DENMARK — Amalie Bruun is a danish lady who makes the coolest Scandinavian black metal.  Her, along with Deafheaven, got me into this genre in a big way in the mid-2010s.
@@ -83,7 +83,7 @@ High on Fire — [Electric Wizard](https://open.spotify.com/album/5i6i0qVIkSwQ64
 
 > OAKLAND, CA — This album goes so hard.  Just...  Oh my god.  It rules.  Matt Pike from the band Sleep front's this band and his voice is scary and his guitar tone is even scarier.  I'm pretty sure he plugs his guitar into the molten core of the earth.
 
-Mastodon — [Blood Mountain](https://open.spotify.com/album/1n8QZFcwx5aQ2LIIlj0iYe?si=0b3XzWyuTWGiidO7mBGuIA)
+Mastodon — [Blood Mountain](https://open.spotify.com/album/1n8QZFcwx5aQ2LIIlj0iYe?si=0b3XzWyuTWGiidO7mBGuIA)  
 Mastodon — [Leviathan](https://open.spotify.com/album/6khFoLWnJZDQvZ7Pijym3b?si=fOO3uQSRSAaW40Rf_zEctQ)
 
 > ATLANTA, GA — The gold standard of modern American heavy metal.  "Leviathan" is about Moby Dick.  It's fun.  I like all their stuff, but these two are still the best of the crop.  They are probably the most "mainstream" metal band in the world right now that's not from the 80s.
@@ -112,7 +112,7 @@ Metallica — [Master of Puppets](https://open.spotify.com/album/7CGhx630DIjdJqa
 
 ## Slow Trudgy Doom Stuff That Has A Foot In Dad Rock And You Will Grow A Beard If You Listen To It Too Much
 
-Black Sabbath — [Paranoid](https://open.spotify.com/album/6r7LZXAVueS5DqdrvXJJK7?si=Xp3rK5hsSAeroMNej56KIQ)
+Black Sabbath — [Paranoid](https://open.spotify.com/album/6r7LZXAVueS5DqdrvXJJK7?si=Xp3rK5hsSAeroMNej56KIQ)  
 Black Sabbath — [Master of Reality](https://open.spotify.com/album/7pGb2cOGVz6vLyaZaKOQ7D?si=RuMhcQS1SoGJ0MV-pu20ZA)
 
 > ENGLAND — I mean... These records aren't classic in a "ya gotta do your homework sense".  These records are legitimately incredible and fun.  And hilariously, there's a lot of pro-christian themes despite all the hand-wringing from the church when they came out.
@@ -145,8 +145,8 @@ Ghost — [Ceremony And Devotion](https://open.spotify.com/album/5CueCHft20n8lr7
 
 ## Hardcore/Metalcore Stuff That's Not Technically "Metal" But Is Adjacent And May Have A Toe In Screamo Or Emo
 
-Converge — [Jane Doe](https://open.spotify.com/album/2gtM4m6sglJDrX3toJWZO6?si=oPJ6ZsWmR3esp_VO7LqlFg)
-Converge — [You Fail Me](https://open.spotify.com/album/4nVzGj56uXP3bXu4rcH5Ob?si=JNoFtJ2WRZWYEZfbbSaLwQ)
+Converge — [Jane Doe](https://open.spotify.com/album/2gtM4m6sglJDrX3toJWZO6?si=oPJ6ZsWmR3esp_VO7LqlFg)  
+Converge — [You Fail Me](https://open.spotify.com/album/4nVzGj56uXP3bXu4rcH5Ob?si=JNoFtJ2WRZWYEZfbbSaLwQ)  
 Converge — [The Dusk In Us](https://open.spotify.com/album/23cl7dningjCbwiNpOyFMP?si=mO00i2M3TI-J_zuRgjm8Hw)
 
 > SALEM, MA — I'm a Converge super fan.  Literally any album from "Jane Doe" on gets my full endorsement (I like the first two but they're harder to recommend).  Start with "You Fail Me" prolly if you've never listened.  Also they have a new album with Chelsea Wolfe (that I mention below that and also Chelsea Wolfe duets on a track on Myrkur's second record) is good.
